@@ -2,6 +2,6 @@
 
 
 - 📫 Reach me at post@larsenweb3.com
-- Visit my Portfolio Page: https://larsenweb3.com/
+- Visit my Pages: https://larsenweb3.com/  -  https://larsen-web.no/
 
 
